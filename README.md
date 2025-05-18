@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning to program and game design.
 - 🌱 I’m currently learning the basics of java
 - 💞️ I’m looking to collaborate on not much I have like no experience
-- 📫 How to reach me please don't :>
+- 📫 How to reach me: please don't :>
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
 
